@@ -8,4 +8,4 @@
 - 👨‍🎓 pretendo faser uma faculdade;
 - 😄 meu cantor preferido é gustavo mioto;
 - 🎼 escuto qualquer estilo de musica;
-- ⛈️ viver não é esperara tempestade passar, e sim dançar na chuva;
+- ⛈️ viver não é esperar a tempestade passar, e sim dançar na chuva;
